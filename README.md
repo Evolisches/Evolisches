@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Evolisches
+- 👀 I’m interested in Gaming, Making Yt Vids and Writing Songs
+- 🌱 I’m currently learning how to properly use Fedora and Manjaro Linux
+- 📫 How to reach me ... Idk why you would like to text me, but my Email is: loki.leopold@gmail.com
